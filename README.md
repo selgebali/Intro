@@ -4,7 +4,6 @@ Let's take a few moments to get to know each other. I'm happy to share about my 
 ## Step 1: Book me here: [https://tidycal.com/selgebali](https://tidycal.com/selgebali)
 Let's find a time that works for us! Feel free to choose between 10, 20 or 30 minutes slots at your convenience! Don't worry if you none of these times fit you, I will be adding more days in the coming days. Also, why not drop me a link on Slack ✍️ and we can organize something?
 
-
 ## Step2: Check out the icebreakers below! 
 Let's unleash some truth-telling!! I've listed some questions that can act as conversation starters and help us get to know each other. I'm happy to answer any of them and feel free to get creative with adding some of your own. Be ready to answer them in return 😈 
 
