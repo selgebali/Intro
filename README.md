@@ -1,8 +1,3 @@
-> “Coming together is a beginning. Keeping together is progress. Working together is success.”
-> 
-> -<cite> Henry Ford </cite>
-
-
 # Hi, Nice to meet you :)
 Let's take a few moments to get to know each other. I'm happy to share about my background and answer any of your questions. 
 
