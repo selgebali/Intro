@@ -1,5 +1,5 @@
 # Hi, Nice to meet you :)
-Let's take a few moments to get to know each other. I'm happy to share about my background and answer any of your questions. The more we know about each other the more we can be effective in contributors to our team.  
+Let's take a few moments to get to know each other. I'm happy to share about my background and answer any of your questions. 
 
 > “Coming together is a beginning. Keeping together is progress. Working together is success.”
 > 
