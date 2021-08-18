@@ -13,6 +13,15 @@ Let's unleash some truth-telling!! I've listed some questions that can act as co
 - Do you enjoy sports? or Do you have any hobbies? What do you like to do in your spare time?
 - If you could become an expert overnight at something else, what would it be?
 - Have you always lived in the same place? what is your favorite place you've traveled or lived? 
-- 
+- Do you have or had any pets? 
+- Do you take notes manually or digitally?
+- Are you an early bird or night owl?
+- Coffee or tea?
+- If you could magically become fluent in any language, what would it be?
+- What is one place you have always wanted to visit?
+- What is the best concert you have ever been to?
+- What is the last show you binge-watched?
+- Deep sea or outer space?
+
 ## Step 3: Serious business!
 If time permits, I'd love to know what are you currently working on? What projects do you have on the backburner and most importantly; How can I help? 🙌
